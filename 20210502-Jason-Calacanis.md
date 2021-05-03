@@ -16,4 +16,8 @@ Jason announced a shitty 'joke' policy [on Twitter](https://twitter.com/_jstrand
 
 He did! 
 
+## Oh my. Did he log on the next morning and continue to belabor his point without realizing that non-white people and non-men don't get a choice as to wether their existence is political?
+
+Indeed, he looked like quite a jerk in doing so.
+
 ---
